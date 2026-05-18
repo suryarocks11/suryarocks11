@@ -30,4 +30,5 @@ Interested in :
 • Informatica Data Quality 
 
 📫 How to reach me : Just Drop me a email at Sugamprakash@gmail.com
+Know more : https://suryarocks11.github.io/My-Portfolio/
 
